@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @a-normal-dog 🐕
+- I like barking at anything that moves 📢
+- I host a website showing various types of dogs 🐶
